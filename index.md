@@ -1,4 +1,4 @@
-# **[DEVELOPER NAME]** TERMS OF SERVICE
+# **COMPAR-E** TERMS OF SERVICE
 
 Last Updated: **[DATE]**
 
